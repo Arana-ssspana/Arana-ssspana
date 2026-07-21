@@ -1,8 +1,8 @@
-## $$\color{#C90010}{\text{BlAh BLah BlaH!        I'M WORKING ON THIS.}}$$
+![hi-im-G. Image](https://github.com/Arana-ssspana/hi-im-G./blob/main/891.png)
 
 
-$$\color{#231ea1}{\text{Araña de Plagiato OR Griffin OR Sobriety OR Slackjaw.}}$$
+$$\color{#8083a5}{\text{Araña de Plagiato OR Griffin OR Sobriety OR Slackjaw.}}$$
 
-$\color{#231ea1}{\text{any pronouns}}$
+$\color{#8083a5}{\text{any pronouns}}$
 
-![](https://komarev.com/ghpvc/?username=Arana-ssspana&color=122faa&label=◐)
+![](https://komarev.com/ghpvc/?username=Arana-ssspana&color=8083a5&label=Found.you!)
